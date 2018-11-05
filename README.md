@@ -1,1 +1,0 @@
-# Taw_exercicio6
